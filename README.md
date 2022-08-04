@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @guikjkjk
-- 👀 I’m interested in astronomy
+- 👀 I’m interested in dick
 - 🌱 I’m currently learning astronomy
 - 💞️ I’m looking to collaborate on in the use of technology
 - 📫 How to reach me by instagram @gui.xvx
